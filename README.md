@@ -6,3 +6,5 @@ J'espère que tu voulais dire crâne ?
 
 Non il a juste mal aux couilles
  J'aime le pain
+
+ah bah tant mieux alors
