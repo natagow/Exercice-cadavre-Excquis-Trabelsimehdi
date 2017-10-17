@@ -11,5 +11,6 @@ Non il a juste mal aux couilles
 ah bah tant mieux alors
 =======
 
-Mais encore...? Fainéasse, où sont les premières lignes?! xD xD xD 
+Mais encore...? Fainéasse, où sont les premières lignes?! xD xD xD
 
+Soudain, un énorme panda tomba du lit.
